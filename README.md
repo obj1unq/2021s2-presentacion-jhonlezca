@@ -12,5 +12,5 @@ Bueno espero que me vaya bien en la cursada me interesa mucho esta materia de ve
 
 
 ![yo](IMG-20200301-WA0015.jpg)
-
+ Aqui les presento a mi nena que es la luz de mis ojos
 
