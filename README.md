@@ -11,7 +11,7 @@ Bueno espero que me vaya bien en la cursada me interesa mucho esta materia de ve
 
 
 
-
+![yo](IMG-20200301-WA0015.jpg)
 
 Esta práctica está pensada para ir familiarizándose con la plataforma de GitHub, herramienta que vamos a estar usando para las entregas de TPs.
 
